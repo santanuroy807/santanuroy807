@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Science
 - 🌱 I’m currently learning Data base management
 - 💞️ I’m looking to collaborate on new project
-- 📫 How to reach me ...
+- 📫 How to reach me ...Santanuroy807@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: ... I eager to know new technology and Science fiction 
 
